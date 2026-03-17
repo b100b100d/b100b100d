@@ -1,6 +1,6 @@
 Hi hi!
 My name is Blue, my carrd linked has some personal information if you'd like to get to know me a bit better!!
-
+- Please don't cuddle me but please!! Whisper me! Don't be shy!!
 
 I block very liberally but it's usually just people that are weirdos or are just kind of mean/rude.
 I'm the autistic agender host to a (diagnosed) DID system and I am a grown man!
