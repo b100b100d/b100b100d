@@ -5,8 +5,6 @@ Please don't cuddle me but please!! Whisper me! I love making new friends.
 
 I block very liberally but it's usually just people that are weirdos or are just kind of mean/rude.
 
-I'm the autistic agender host to a (diagnosed) DID system and I am a grown adult!
-
 DNI; Minors, proshippers, and IRL's. No shade (kinda) to the IRLs, I'm just not comfortable enabling them as someone that experiences psychosis.
 
 My PLEASE interact list consists of other adult systems and anyone that's interested in;
